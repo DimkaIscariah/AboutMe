@@ -4,7 +4,7 @@
 
 Меня зовут Арабей Дмитрий Дмитриевич, он же Dimka Iscariah, для своих просто Димочкин ;)
 
-[Foto] (https://disk.yandex.ru/client/recent?idApp=client&dialog=slider&idDialog=%2Fdisk%2FDimkaIscariah.jpg "This is me")  
+[Foto] (https://disk.yandex.ru/client/recent?idApp=client&dialog=slider&idDialog=%2Fdisk%2FDimkaIscariah.jpg)  
 
 Мне 33 года.
 
