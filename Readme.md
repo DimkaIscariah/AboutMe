@@ -4,7 +4,7 @@
 
 Меня зовут Арабей Дмитрий Дмитриевич, он же Dimka Iscariah, для своих просто Димочкин ;)
 
-![Foto] (https://lh3.google.com/u/0/d/1hBOSYI9kE6SecqSUqg6YEHqCkIVRC5e3=w1600-h789-iv1)  
+![Me](https://lh3.google.com/u/0/d/1hBOSYI9kE6SecqSUqg6YEHqCkIVRC5e3=w1600-h789-iv1)  
 
 
 
