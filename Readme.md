@@ -2,7 +2,7 @@
 
 Привет :)
 
-Меня зовут Арабей Дмитрий Дмитриевич [vk] (https://vk.com/id7551090)
+Меня зовут Арабей Дмитрий Дмитриевич, он же Dimka Iscariah, для своих просто Димочкин ;)
 
 [Foto] (https://disk.yandex.ru/client/recent?idApp=client&dialog=slider&idDialog=%2Fdisk%2FDimkaIscariah.jpg "This is me")  
 
